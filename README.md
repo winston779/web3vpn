@@ -1,6 +1,6 @@
 # web3加速器官网地址
 
-最新地址：[web3vpn.net](https://web3jsq.vip/f/JW86bEOV)
+最新地址：[web3vpn.net](https://www.web3vpn.xyz/f/JW86bEOV)
 
 ## 简介
 
